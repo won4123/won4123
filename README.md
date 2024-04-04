@@ -3,4 +3,4 @@
 ## **About me:**
 >* **Univ.** : Gyeongsang National University
 >* **Major** : English Education
->* **Grade**
+>* **Grade** : Sophomore
