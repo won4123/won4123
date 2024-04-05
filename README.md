@@ -6,3 +6,5 @@
 >* **Grade** : Sophomore
 
 ## 🩰 **Interested in:**
+>* **Language** : Especially in English
+>* **Drawing**
