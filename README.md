@@ -7,4 +7,4 @@
 
 ## 🩰 **Interested in:**
 >* **Language** : Especially in English
->* **Drawing** : Portraits, Character
+>* **Drawing** : Portraits, Character Design
