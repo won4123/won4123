@@ -8,4 +8,4 @@
 ## 🩰 **Interested in:**
 >* **Language** : Especially in English
 >* **Drawing** : Portraits, Character Design
->* **Gam**
+>* **Game**
