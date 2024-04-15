@@ -8,4 +8,3 @@
 ## 🩰 **Interested in:**
 >* **Language** : Especially in English
 >* **Drawing** : Portraits, Character Design
->* **Game** : Mobile game
